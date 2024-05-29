@@ -28,3 +28,8 @@ management strategies, thus aiding policymakers in their
 efforts to mitigate traffic jams and promote more efficient
 urban mobility in the Kiribathgoda region.
 
+### Poster
+![image](https://github.com/Samitha10/Research/assets/145892250/976c9247-c184-48c3-bb6d-d9b465e8147d)
+
+
+
